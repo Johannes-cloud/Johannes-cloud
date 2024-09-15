@@ -1,1 +1,1 @@
-I press buttons for a living, and somehow i get payed for it.
+I press buttons for a living, and somehow i get paid for it.
